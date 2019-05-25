@@ -1,1 +1,0 @@
-# THFETUTP06_Lake_Tahoe_Landing_Page
